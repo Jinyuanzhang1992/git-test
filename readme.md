@@ -5,3 +5,11 @@ do you love me?
 i don't know how to say English good!
 
 he is a good dog.
+
+dadada!
+
+heheh!
+
+@!
+
+!##@@
